@@ -1,0 +1,2 @@
+# premium-yakisugi-001-yakisugi-charred-wood-shou-s
+Tired of sifting through endless blog posts and YouTube videos that contradict each other on charring wood? This hub cuts through the noise, giving you the definitive playbook for both yakisugi and shou sugi ban—so you can start burning with confidence.  This hub solves the confusion between yakisugi and shou sugi ban, providing a single, trusted s
